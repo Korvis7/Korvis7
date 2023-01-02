@@ -1,4 +1,4 @@
-Hello! My name is Korvis. I am a digital artist/storyteller. 
+Hello! My name is Korvis. I am a digital artist & storyteller. 
 
 Current interests:
 - Learning the Spanish language (Mexcian dialect)
